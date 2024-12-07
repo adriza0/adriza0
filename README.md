@@ -1,3 +1,3 @@
-🌱 Learning Java Script
 📍 Rome
-🚀 HyperStudios Founder
+🚀 HyperStudios Dirigenza
+🉐 SkyForce Executive
